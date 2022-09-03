@@ -1,0 +1,5 @@
+-  Hi, I’m @Darling-Doe
+-  I’m interested in art
+-  I’m currently learning what ever the dopamine tells me to
+-  I’m looking to collaborate on nothing at the moment
+-  How to reach me ...
